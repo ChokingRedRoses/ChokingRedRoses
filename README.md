@@ -16,6 +16,7 @@
 - i get uncomf and jealous REALLY FAST !!!
 - i loev my boyfriiieenndd :33 
 
+![image](https://github.com/user-attachments/assets/2fd4b436-776c-440d-a989-bd8605747eeb)
 
 
 ![x99mip](https://github.com/user-attachments/assets/902e72a4-7e62-450a-bd56-1f0338699da3)
