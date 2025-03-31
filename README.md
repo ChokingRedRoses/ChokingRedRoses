@@ -9,6 +9,8 @@
 - ZOO PEOPLE. RACISTS / RACISM
 
 - , iwc ; dw and crk fandom
+- , im usually w my friends or my BOYFRIENNDD!!! ^_^^
+- im a turkish girl. , turkish boys iwec and girls int FREELY!!
 
 
 
