@@ -3,7 +3,12 @@
 
 - " 𝒊𝒍𝒍.. 𝒃𝒆 𝒕𝒉𝒆 𝒃𝒓𝒊𝒅𝒆 𝒕𝒉𝒆𝒚 𝒅𝒆𝒔𝒆𝒓𝒗𝒆..!
 - , HELLOHELLO!!! You can call me Snowdrop by my nickname , or any character im using that time right now.!
+- you can int w me unless my name says anytime and OBV FREELY CUD ME A HUG CUD COMF!!!!
+- , my dni is basic ,, ;;
 
+- ZOO PEOPLE. RACISTS / RACISM
+
+- , iwc ; dw and crk fandom
 
 
 
