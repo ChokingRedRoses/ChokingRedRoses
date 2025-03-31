@@ -11,7 +11,10 @@
 - , iwc ; dw and crk fandom
 - , im usually w my friends or my BOYFRIENNDD!!! ^_^^
 - im a turkish girl. , turkish boys iwec and girls int FREELY!!
-
+- yes , yes i have 2 kins at same time!!! they are black forest cookie and dandy from dandys world!
+- please iwc if im near my friends or talking w someone!
+- i get uncomf and jealous REALLY FAST !!!
+- i loev my boyfriiieenndd :33 
 
 
 
