@@ -25,7 +25,8 @@ hi im kewl trust me guys pls  intt...!
 - yes , yes i have 3 kins at same time!!! they are black forest cookie & shadow milk cookie and dandy from dandys world!
 - please iwc if im near my friends or talking w someone!
 - i get uncomf and jealous REALLY FAST !!!
-- i loev my boyfriiieenndd :33
+ ![p119](https://github.com/user-attachments/assets/30671ca0-a1cf-43b0-b75c-41c9128a6f99)
+
 - please be kind w my other friends including me too !!!!   
 , thats it ,, thanks for reading this i appreciate it dearly!! ^3^
 
