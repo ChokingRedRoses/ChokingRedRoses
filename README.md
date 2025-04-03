@@ -25,7 +25,9 @@ https://github.com/user-attachments/assets/4c89792f-bcaf-4705-8e45-0e632b74d56b
 - DANDY'S WORLD
 - SANRIO ![image](https://github.com/user-attachments/assets/3fd7c0b2-974c-45d7-98a6-86724d4cea7a)
 - MADOKA MAGICA
-- HORIMIYA 
+- HORIMIYA
+- KAMISAMA KISS
+- REGREVATOR
 - COOKIE RUN : KINGDOM
 - FNAF
   and many more that i prob forgot
@@ -38,9 +40,9 @@ https://github.com/user-attachments/assets/462b3707-dcf8-4f9b-91c8-a2daedfc5207
 
 
 
-- im usually w my friends or my BOYFRIENNDD!!! ^_^^![wfdcyk](https://github.com/user-attachments/assets/dcde410f-115a-4828-9ac9-e9de9dcb03f9)
+- im usually w my friends.![wfdcyk](https://github.com/user-attachments/assets/dcde410f-115a-4828-9ac9-e9de9dcb03f9)
 -  im a turkish girl. , turkish boys iwec and girls int FREELY!!
-- yes , yes i have 3 kins at same time!!! they are black forest cookie & shadow milk cookie and dandy from dandys world!
+- yes , yes i have 3 kins at same time!!! they are black forest cookie & shadow milk cookie and dandy from dandys world + sayorii!!
 - please iwc if im near my friends or talking w someone!![image](https://github.com/user-attachments/assets/cd5c27b1-421b-456a-bd80-6ce2f7c747b8)
 
 - i get uncomf and jealous REALLY FAST !!!
