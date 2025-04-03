@@ -29,6 +29,7 @@ https://github.com/user-attachments/assets/4c89792f-bcaf-4705-8e45-0e632b74d56b
 - KAMISAMA KISS
 - REGREVATOR
 - COOKIE RUN : KINGDOM
+- FRIDAY NIGHT : FUNKIN!
 - FNAF
   and many more that i prob forgot
 
