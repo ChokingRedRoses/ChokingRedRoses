@@ -18,12 +18,14 @@ https://github.com/user-attachments/assets/4c89792f-bcaf-4705-8e45-0e632b74d56b
 - , my dni is basic ,, ;;
                                                                                                        
 - ZOO PEOPLE. RACISTS / RACISM , TRANSPHOBIA or / and ISLAMICPHOBIA
-- my fandoms are currently ;; 
+- my fandoms are currently ;; ![image](https://github.com/user-attachments/assets/3fd7c0b2-974c-45d7-98a6-86724d4cea7a)
 
 - PJSK
 - DDLC
+- DANGARONPA
 - DANDY'S WORLD
-- SANRIO ![image](https://github.com/user-attachments/assets/3fd7c0b2-974c-45d7-98a6-86724d4cea7a)
+- SANRIO
+- BENDY AND THE INK MACHINE!
 - MADOKA MAGICA
 - HORIMIYA
 - KAMISAMA KISS
