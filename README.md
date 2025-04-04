@@ -11,7 +11,8 @@ hi im kewl trust me guys pls  intt...!
 - i hide freely if u got me too much uncomf!![image](https://github.com/user-attachments/assets/01bb8955-2f36-42ad-9547-7c39e2a0479e)
 
 - you can int w me unless my name says anytime and OBV FREELY CUD ME A HUG CUD COMF!!!!
-- lucky star is my comf show / anime show !!! :33 
+- lucky star is my comf show / anime show !!! :33
+- i have adhd so ,, i get distracted a lot and struggle w my plans..
 
 https://github.com/user-attachments/assets/4c89792f-bcaf-4705-8e45-0e632b74d56b
 
