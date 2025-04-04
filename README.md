@@ -27,6 +27,7 @@ https://github.com/user-attachments/assets/4c89792f-bcaf-4705-8e45-0e632b74d56b
 - DANGARONPA
 - BFDI
 - OSC
+- LHG ( LET HIM GO )
 - DANDY'S WORLD
 - SANRIO
 - BENDY AND THE INK MACHINE!
@@ -46,6 +47,7 @@ https://github.com/user-attachments/assets/4c89792f-bcaf-4705-8e45-0e632b74d56b
 
 https://github.com/user-attachments/assets/462b3707-dcf8-4f9b-91c8-a2daedfc5207
 
+![image](https://github.com/user-attachments/assets/c61631dd-abf1-4fa3-ad6e-93ac1c32c5ad)
 
 
 
