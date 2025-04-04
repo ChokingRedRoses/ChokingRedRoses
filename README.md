@@ -27,6 +27,7 @@ https://github.com/user-attachments/assets/4c89792f-bcaf-4705-8e45-0e632b74d56b
 - SANRIO
 - BENDY AND THE INK MACHINE!
 - MADOKA MAGICA
+- LUCKY STAR
 - HORIMIYA
 - FORSAKEN
 - CHAINSAW MAN
@@ -55,6 +56,9 @@ https://github.com/user-attachments/assets/462b3707-dcf8-4f9b-91c8-a2daedfc5207
 - i might get uncomf you ignoring me,, my badd, my badd , its my con! ![image](https://github.com/user-attachments/assets/1016ae4f-1dc8-4294-a231-21fbd881191a)
 
 - please be kind w my other friends including me too !!!!   
-, thats it ,, thanks for reading this i appreciate it dearly!! ^3^
+, thats it ,, thanks for reading this i appreciate it dearly!! ^3^ byebye!!
+
+
+https://github.com/user-attachments/assets/ed34446f-fdbe-491b-b831-02971195ff3f
 
 
