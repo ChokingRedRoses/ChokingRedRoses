@@ -24,6 +24,8 @@ https://github.com/user-attachments/assets/4c89792f-bcaf-4705-8e45-0e632b74d56b
 - PJSK
 - DDLC
 - DANGARONPA
+- BFDI
+- OSC
 - DANDY'S WORLD
 - SANRIO
 - BENDY AND THE INK MACHINE!
