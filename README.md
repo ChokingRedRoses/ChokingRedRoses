@@ -32,4 +32,13 @@
 - PLEASE cuddle with me , a high cud/touchcomf ^_^
 - i hide people freely , if i have you hided, then damn , i dont hide people much ur one of my dni list
 - one of my con being getting jealous so quickly , please respect it!
-- sigh ships iwc i dont understand yall roleplaying randomly 
+- sigh ships iwc i dont understand yall roleplaying randomly
+- zoo / racism etc. interacters will be blocked in any way.
+![image](https://github.com/user-attachments/assets/c14308f3-5974-444a-abce-14cefb5f9c2e)
+
+- i DONT support pr0ships.
+- i will respect ur ship BUT if you respect mine first.
+- i overthink too much , please be gentle with me! thanks!
+ - guys truthless recluse is realyl me uhh
+- please be kind with me and my friends . 
+- boys iwc . lesbian :fire:
