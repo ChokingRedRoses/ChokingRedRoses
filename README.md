@@ -44,3 +44,4 @@
 - boys iwc . lesbian :fire:
 - i slur a *LOT* iwc if it triggers you or just tell me! i promise ill act more careful to you!
 - my fandoms? sigh i cant type all of them , but just ask for them! ^w^
+- english is NOT my main language. my main language is being turkish ;; turkish people dniuid or iwec
