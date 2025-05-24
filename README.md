@@ -42,3 +42,5 @@
  - guys truthless recluse is realyl me uhh
 - please be kind with me and my friends . 
 - boys iwc . lesbian :fire:
+- i slur a *LOT* iwc if it triggers you or just tell me! i promise ill act more careful to you!
+- my fandoms? sigh i cant type all of them , but just ask for them! ^w^
