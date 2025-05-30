@@ -47,15 +47,15 @@ https://github.com/user-attachments/assets/15528527-2237-4e83-845d-d93a32dc0e55
 - boys iwc . lesbian :fire:
 - i slur a *LOT* iwc if it triggers you or just tell me! i promise ill act more careful to you!
 - my fandoms? sighs in deeply...
-,, madoka magica
-,, lucky star
-,, LHG ( Let Him Go )
-,, COOKIE RUN: KINGDOM
-,, COOKIE RUN: OVENBREAK
-,, chainsaw man
-,, dandy's world
-,, fnaf 
-, and a lot more i prob forgot, ask for them!
+- madoka magica
+- lucky star
+- LHG ( Let Him Go )
+- COOKIE RUN: KINGDOM
+- COOKIE RUN: OVENBREAK
+- chainsaw man
+- dandy's world
+- fnaf 
+- and a lot more i prob forgot, ask for them!
 - english is NOT my main language. my main language is being turkish ;; turkish people dniuid or iwec
 - a high cover discomfort , please dont cover UNLESS close friends!
 - baibai now dear!/platonic :3! 
