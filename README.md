@@ -1,12 +1,10 @@
 
 
-*" all my drvgs on a burning pile. "*
+*" No not again, a loser I am
+I love you tonight "*
 
 
 
-
-
-![image](https://github.com/user-attachments/assets/30e22dc9-c48c-4b34-aeed-14f28b13e234)
 
 
 
@@ -25,6 +23,7 @@
 - you can call me Snowdrop , Snow , etc. with Snowdrop . Snowie can only be used for Ray and my husband <3 
 - my fictionkins goes by ;
 - Truthless Recluse
+- Homura Akami
 - Pure Vanilla Cookie 
 - and a lot more , you can find them in my main acc!
 - im usually hyperactive ^w^
