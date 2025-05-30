@@ -8,6 +8,8 @@ I love you tonight "*
 
 
 
+https://github.com/user-attachments/assets/15528527-2237-4e83-845d-d93a32dc0e55
+
 
 
 
@@ -20,13 +22,15 @@ I love you tonight "*
 
 - ehem ehem.. "***welcome , welcome..!***" ,, 
  
-- you can call me Snowdrop , Snow , etc. with Snowdrop . Snowie can only be used for Ray and my husband <3 
+- you can call me Snowdrop , Snow , etc. with Snowdrop . Snowie can only be used for Ray. <3 
 - my fictionkins goes by ;
 - Truthless Recluse
 - Homura Akami
 - Pure Vanilla Cookie 
 - and a lot more , you can find them in my main acc!
 - im usually hyperactive ^w^
+
+
 - usually the first interacter , but would LOVE if you interact first <33
 - PLEASE cuddle with me , a high cud/touchcomf ^_^
 - i hide people freely , if i have you hided, then damn , i dont hide people much ur one of my dni list
