@@ -28,6 +28,8 @@ I love you tonight , you are my knight."*
 - my fictionkins goes by ;
 - Truthless Recluse
 - Homura Akami
+- Sayori
+- Prune Juice Cookie
 - Pure Vanilla Cookie 
 - and a lot more , you can find them in my main acc!
 - im usually hyperactive ^w^
