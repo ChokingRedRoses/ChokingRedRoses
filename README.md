@@ -62,6 +62,7 @@ I love you tonight , you are my knight."*
 - and a lot more i prob forgot, ask for them!
 - english is NOT my main language. my main language is being turkish ;; turkish people dniuid or iwec
 - a high cover discomfort , please dont cover UNLESS close friends!
+- im sorryf im kinda suicidal these days :( 
 - baibai now dear!/platonic :3! 
 
 
