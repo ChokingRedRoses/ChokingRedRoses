@@ -1,13 +1,13 @@
 
 
-*" No not again, a loser I am.
-I love you tonight , you are my knight."*
+*" oh no.. this.. t-this world is too much for me..!"*
 
 
 
 
 
-![image](https://github.com/user-attachments/assets/06b54e4a-5086-4a78-bc71-bc70cb2c947e)
+![image](https://github.com/user-attachments/assets/5b228056-066d-4de3-980f-0399fd9241a1)
+
 
 
 
@@ -22,7 +22,7 @@ I love you tonight , you are my knight."*
 
 .                                                                 .                                                     .
 
-- ehem ehem.. "***welcome , welcome..!***" ,, 
+ ehem ehem.. "***welcome , welcome..!***" ,, 
  
 - you can call me Snowdrop , Snow , etc. with Snowdrop . Snowie can only be used for Ray. <3 
 - my fictionkins goes by ;
@@ -31,6 +31,7 @@ I love you tonight , you are my knight."*
 - Sayori
 - Prune Juice Cookie
 - Pure Vanilla Cookie 
+- TwoTime
 - and a lot more , you can find them in my main acc!
 - im usually hyperactive ^w^
 
@@ -64,6 +65,7 @@ I love you tonight , you are my knight."*
 - a high cover discomfort , please dont cover UNLESS close friends!
 - im sorryf im kinda suicidal these days :( 
 - baibai now dear!/platonic :3! 
+![image](https://github.com/user-attachments/assets/6f2512fe-96f0-4b20-b112-8d532fbbf45b)
 
 
 
