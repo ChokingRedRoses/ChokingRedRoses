@@ -1,12 +1,10 @@
-
-
-*" oh no.. this.. t-this world is too much for me..!"*
+im taking a break rn man leave my dm's alone
 
 
 
 
 
-![image](https://github.com/user-attachments/assets/5b228056-066d-4de3-980f-0399fd9241a1)
+![image](https://github.com/user-attachments/assets/5d4407e3-7f79-41d8-95ea-fae1377e55ec)
 
 
 
