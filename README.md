@@ -22,8 +22,7 @@ im taking a break rn man leave my dm's alone
 
  ehem ehem.. "***welcome , welcome..!***" ,, 
  
-- you can call me Snowdrop , Snow , etc. with Snowdrop . Snowie can only be used for Ray. <3 
-- my fictionkins goes by ;
+- you can call me Snowdrop , Snow , etc. with Snowdrop . Snowie is only for loona , my (fict)kins go by;
 - Truthless Recluse
 - Homura Akami
 - Sayori
@@ -57,6 +56,8 @@ im taking a break rn man leave my dm's alone
 - COOKIE RUN: OVENBREAK
 - chainsaw man
 - dandy's world
+- forsaken
+- blue lock
 - fnaf 
 - and a lot more i prob forgot, ask for them!
 - english is NOT my main language. my main language is being turkish ;; turkish people dniuid or iwec
