@@ -1,4 +1,4 @@
-" *a tiny droplet of deceit can bring down a mighty empire!* "
+" *maybe in another universe,im your friend, **pure vanilla cookie**..* "
 
 
 
@@ -40,7 +40,8 @@
 - one of my con being getting jealous so quickly , please respect it!
 - sigh ships iwc i dont understand yall roleplaying randomly
 - zoo / racism etc. interacters will be blocked in any way.
-![image](https://github.com/user-attachments/assets/c14308f3-5974-444a-abce-14cefb5f9c2e)
+![image](https://github.com/user-attachments/assets/088d3a2f-0cf8-41f1-893e-de778ce1bf90)
+
 
 - i DONT support pr0ships.
 - i will respect ur ship BUT if you respect mine first.
