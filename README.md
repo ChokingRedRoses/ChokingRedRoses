@@ -48,6 +48,8 @@
 - i overthink too much , please be gentle with me! thanks!
 - please be kind with me and my friends . 
 - boys iwc . 
+- guys i swear im not addicted![image](https://github.com/user-attachments/assets/be7ede2d-d907-49a9-9f58-eb1cddf5fca3)
+
 - i slur a *LOT* iwc if it triggers you or just tell me! i promise ill act more careful to you!
 - my fandoms? sighs in deeply...
 - madoka magica
@@ -65,7 +67,6 @@
 - english is NOT my main language. my main language is being turkish ;; turkish people dniuid or iwec
 - a high cover discomfort , please dont cover UNLESS close friends!
 - bai i guess.............
-![image](https://github.com/user-attachments/assets/6f2512fe-96f0-4b20-b112-8d532fbbf45b)
 
 
 
