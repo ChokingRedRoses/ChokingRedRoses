@@ -66,7 +66,7 @@
 - and a lot more i prob forgot, ask for them!
 - english is NOT my main language. my main language is being turkish ;; turkish people dniuid or iwec
 - a high cover discomfort , please dont cover UNLESS close friends!
-- bai i guess.............
+- the first time someone ever told me that they think im a strong person both physically and mentally was an person i just met and was a online friend tjat helped me when i almost suicided.
 
 
 
