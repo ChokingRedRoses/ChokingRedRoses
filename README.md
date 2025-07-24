@@ -22,7 +22,7 @@
 
  ehem ehem.. "***welcome , welcome..!***" ,, 
 
-- well well well... hello my dear one! - you can call me Snowdrop , Snow , etc. or just one of my fictionkins!
+- well well well... hello my dear one! - please call me Sapphire, or Snowdrop, or any of my fictionkins <3
 - my (fict)kins go by;
 - Truthless Recluse
 - Homura Akami
