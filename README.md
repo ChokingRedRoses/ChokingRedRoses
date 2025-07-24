@@ -38,6 +38,7 @@
 - PLEASE cuddle with me , a high cud/touchcomf ^_^
 - i hide people freely , if i have you hided, then damn , i dont hide people much ur one of my dni list
 - one of my con being getting jealous so quickly , please respect it!
+- i have epilepsy and im triggered of loud sounds, so please recommend or put on loud songs / sounds when im there. ! 
 - sigh ships iwc i dont understand yall roleplaying randomly
 - zoo / racism etc. interacters will be blocked in any way.
 ![image](https://github.com/user-attachments/assets/0dc7738c-ff9e-4284-bb6b-ad7585a27acd)
@@ -63,6 +64,7 @@
 - forsaken
 - blue lock
 - fnaf 
+- pressure
 - and a lot more i prob forgot, ask for them!
 - english is NOT my main language. my main language is being turkish ;; turkish people dniuid or iwec
 - a high cover discomfort , please dont cover UNLESS close friends!
