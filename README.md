@@ -61,6 +61,7 @@
 - COOKIE RUN: OVENBREAK
 - chainsaw man
 - dandy's world
+- ALNST
 - forsaken
 - blue lock
 - fnaf 
