@@ -42,3 +42,5 @@ ANYWAYS THIS IS STILL A WIP
 - throws photo of me and my bsf (im the elliot)
 
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/1cc37315-0b77-4393-966c-8d857a2b3204" />
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/654cfd4b-7cca-4314-b294-4d47f784beb0" />
+
