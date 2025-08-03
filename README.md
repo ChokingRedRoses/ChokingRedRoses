@@ -37,3 +37,8 @@ my pronouns are he / him. but i dont really mind any other pronouns!!
 im a hyperactive person lol you can find me at ponytown almost anytime ( discord too.) :3
 
 ANYWAYS THIS IS STILL A WIP
+
+
+- throws photo of me and my bsf (im the elliot)
+
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/1cc37315-0b77-4393-966c-8d857a2b3204" />
