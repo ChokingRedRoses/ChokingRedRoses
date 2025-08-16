@@ -7,7 +7,7 @@ why, hello, hello! Snowdrop speaking here!
 
   , NICKNAMES!
 
-snowdrop, snow, snowie, 007n7, sapphire, pure vanilla and etc! / any of my fictionkins!
+snowdrop, snow, kai, snowie, 007n7, sapphire, pure vanilla and etc! / any of my fictionkins!
   
   , INFORMATION
 
