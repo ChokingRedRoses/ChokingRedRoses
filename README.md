@@ -1,7 +1,8 @@
-" *son..?* "
+" S0 D0 Y0U 4CTU4LLY TH1NK Y0U C0ULD D3F34T M3??  "
 
-/ super cool 007n7 banner in progress dont blame me lolll
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/8c970408-f3e9-45b2-8791-352c3124a2f7" />
 
+noli banner made by me.
 
 why, hello, hello! Snowdrop speaking here!
 
