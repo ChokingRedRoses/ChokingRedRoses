@@ -8,7 +8,7 @@ why, hello, hello! Snowdrop speaking here!
 
   , NICKNAMES!
 
-snowdrop, snow, kai, snowie, 007n7, sapphire, pure vanilla and etc! / any of my fictionkins!
+snowdrop/snow, bluudud, kai, any other nicknames thin ice unless friends
   
   , INFORMATION
 
