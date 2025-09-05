@@ -1,8 +1,7 @@
-" S0 D0 Y0U 4CTU4LLY TH1NK Y0U C0ULD D3F34T M3??  "
+<img width="640" height="396" alt="image" src="https://github.com/user-attachments/assets/8406c738-027c-4b8c-86d0-658f32dc455c" />
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/8c970408-f3e9-45b2-8791-352c3124a2f7" />
+ok bye artful drawn by me (first attempt)
 
-noli banner made by me.
 
 why, hello, hello! Snowdrop speaking here!
 
