@@ -1,3 +1,5 @@
+" ah.. my life is a mess , my dear its all your fault."
+
 <img width="640" height="396" alt="image" src="https://github.com/user-attachments/assets/8406c738-027c-4b8c-86d0-658f32dc455c" />
 
 ok bye artful drawn by me (first attempt)
