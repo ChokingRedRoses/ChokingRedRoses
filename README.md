@@ -6,7 +6,7 @@
   kai ⟢ snow ⟢ snowdrop
  
  
-they / him .
+they / them only .
 
  
  mainly w2i recommended
