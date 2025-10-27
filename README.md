@@ -1,9 +1,10 @@
-![⊹ ࣭ Ivantill _♡ ᵎᵎ](https://github.com/user-attachments/assets/d4522665-d1f7-4a16-8a26-dde5e02f1dbe)
+![c1c508c30906e7d78998482b9e7cb8da](https://github.com/user-attachments/assets/744c405e-70fd-42c5-8926-f85a428bb8ad)
 
 
 
 
-  kai ⟢ snow ⟢ snowdrop
+
+ snow ⟢ snowdrop
  
  
 they / them only .
