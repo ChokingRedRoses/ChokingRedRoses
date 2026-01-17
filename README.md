@@ -1,7 +1,8 @@
 
 <img width="640" height="69" alt="image" src="https://github.com/user-attachments/assets/97cb12c4-39fe-4a15-b179-137f4088fe09" />
 
-![me _o](https://github.com/user-attachments/assets/de2d554e-0ecb-44aa-83b8-8fcd31216041)
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/a679786f-996c-47f9-a80e-21969cad6258" />
+
 
 <img width="640" height="69" alt="image" src="https://github.com/user-attachments/assets/97cb12c4-39fe-4a15-b179-137f4088fe09" />
 
