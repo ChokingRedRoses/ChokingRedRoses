@@ -2,7 +2,9 @@
 <img width="640" height="69" alt="image" src="https://github.com/user-attachments/assets/97cb12c4-39fe-4a15-b179-137f4088fe09" />
 
 
-<img width="1199" height="698" alt="image" src="https://github.com/user-attachments/assets/95155b36-edc2-4da6-b4af-a378e9366031" />
+![mmmmmmmfern](https://github.com/user-attachments/assets/c2f640a0-7958-4631-a95c-6f552086e285)
+
+
 
 
 
@@ -22,6 +24,5 @@
 https://snowdrop.atabook.org/  . https://drinkdestroy.straw.page  . [https://pronouns.cc/@forcedlight_](https://pronouns.cc/@forcedlight_)
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎check my links pls im ccool  i swear:(
 
-![price-tag-tpot-tpot-price-tag](https://github.com/user-attachments/assets/b811870b-4a24-4f83-a7f0-6ac07e0e143d)
 
 
